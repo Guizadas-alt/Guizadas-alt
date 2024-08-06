@@ -11,3 +11,16 @@ Meu nome é Guilherme Negrao
 - 😄 Pronouns: ELE/DELE
 - ⚡ Fun fact: ... gosto de jogar volei
 -->
+
+
+
+
+
+
+
+
+
+
+
+
+(https://media1.tenor.com/m/mCiM7CmGGI4AAAAC/naruto.gif)
