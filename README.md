@@ -7,7 +7,7 @@ Meu nome é Guilherme Negrao
 - 👯 Estou procurando trablaharar com programação...
   
 
-- 💬 me pergunte sobre jogos
+- 💬 sei muito sobre jogos
 - 📫 entre em contato comigo por: gnegrao09@gmail.com
 - 😄 Pronouns: ELE/DELE
 - ⚡ curiosidades:gosto de jogar volei
